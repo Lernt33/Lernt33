@@ -5,7 +5,7 @@
 
 - 📫 Contact **giorgizautashvili@gmail.com**
 
-- 🌏 Languages **GEO:georgia:, EN🇬🇧, RUS🇷🇺**
+- 🌏 Languages **GEO, EN, RUS**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
