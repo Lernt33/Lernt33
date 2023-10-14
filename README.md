@@ -3,9 +3,9 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=lernt33&label=Profile%20views&color=0e75b6&style=flat" alt="lernt33" /> </p>
 
-- 📫 Contact **giorgizautashvili@gmail.com**
+- 📫 Contact **giorgizautashvili24@gmail.com**
 
-- 🌏 Languages **GEO, EN, RUS**
+- 🌏 Languages **GEO<img src="https://vk.com/emoji/e/f09f87acf09f87aa.png"/>, EN, RUS**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
