@@ -5,7 +5,7 @@
 
 - 📫 Contact **giorgizautashvili24@gmail.com**
 
-- 🌏 Languages: **GEO<img src="https://vk.com/emoji/e/f09f87acf09f87aa.png" link="" alt="" border="0" title=""/>, EN<img src="https://vk.com/emoji/e/f09f87acf09f87a7.png"/>, RUS<img src="https://vk.com/emoji/e/f09f87b7f09f87ba.png"/>**
+- 🌏 Languages: **GEO<img src="vk.com/emoji/e/f09f87acf09f87aa.png" link="" alt="" border="0" title=""/>, EN<img src="https://vk.com/emoji/e/f09f87acf09f87a7.png"/>, RUS<img src="https://vk.com/emoji/e/f09f87b7f09f87ba.png"/>**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
